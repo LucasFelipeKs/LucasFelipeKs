@@ -1,4 +1,4 @@
-### Hi there 👋, Me chamo Lucas Felipe
+### Olá 👋, Me chamo Lucas Felipe
 
 👀 procurando vagas na área de tecnologia
 📚 Gosto de estudar
