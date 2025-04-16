@@ -1,6 +1,4 @@
 ### Hi there 👋, Me chamo Lucas Felipe
 
-👀 procurando vaga developer mobile
+👀 procurando vagas na área de tecnologia
 📚 Gosto de estudar
-👶 Papai de Heitor
-🏍 Apaixonado por motores
